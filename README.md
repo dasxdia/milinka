@@ -1,2 +1,2 @@
 # milinka
-wakawaka
+carpe diem...
